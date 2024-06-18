@@ -8,5 +8,6 @@ Meu nome é Kauan Barros
 
 ## Você pode entrar em contato comigo via 📧
 
-  00001097848693sp@al.educacao.sp.gov.br
+00001097848693sp@al.educacao.sp.gov.br
  
+![](https://media1.tenor.com/m/ldWVE-JVx7MAAAAC/oi.gif)
